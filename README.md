@@ -6,3 +6,5 @@ I'm studying IT at school, but I've learnt everything on my own.
 Currently unemployed.
 
 gempir was here 😎
+
+Quinn was here 😐
